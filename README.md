@@ -31,4 +31,4 @@
 
 🤝 I am always open to collaborating on innovative Web3 projects. Feel free to connect!
 
-* **Email:** `daiveisi666@gmail.com`
+* **Email:** `daiveisi66@gmail.com`
